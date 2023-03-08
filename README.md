@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Java and Spring**
 
-- 📫 How to reach me **vazquezglezraul@gmail.com**
+- 📫 How to reach me: Contact me through my mail **vazquezglezraul@gmail.com** or LinkedIn 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
